@@ -16,3 +16,4 @@
 - [Chapter 3 Racing into the Storm](./Chapter_3_Racing_into_the_Storm.md)
 - [C1-9](./C1-9.md)
 - [C1-10](./C1-10.md)
+- [C2-7](./C2-7.md)
