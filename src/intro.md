@@ -28,7 +28,7 @@ From an interview with him
 
 # Some Basic Terms You May Need to Know
 
-**United Nations:** The prevalent largest international organization in the globe, now appearing as a global government.
+**United Nations:** The prevalent largest international organization in the globe, now serving as a global government after a turmoil.
 
 
 **Space Navy:** A stellar civilization's spatial forces within its territory in space. It can include several combatant space stations and military satellites, or massive spaceships that resemble catogaries of ships in navies on Earth, such as battleships, cruisers, destroyers, escorts, etc.
@@ -37,7 +37,7 @@ From an interview with him
 **Hyperspace:** Tunnels in space functioning like a wormhole that allow massive spacecrafts to travel to another specific location over light speed.
 
 
-**Surface Forces:** Land, sea, air forces, and support forces controlled by a civilization within its living planet. They take the job to occupy another civilization on land or sea of planets after space navies finish combat.
+**Surface Forces:** Land, naval, aerial, and support forces controlled by a civilization within her living planet's atmosphere and surface area. They take the job to occupy another civilization on land or sea of planets after space navies finish combat and seize priority.
 
 
 **Superluminal Thruster:** Engines that are capable to drive spaceships in hyperspace.
@@ -49,10 +49,7 @@ From an interview with him
 **Spatial Miles:** A universal unit for measuring firing ranges of spatial warship artillery, as well as speed of movement of ships between close stellar systems. Generally, 1 spatial mile, abbreviated as 1 sm, equals to 1.2 to 1.5 million km, which is 0.08 to 0.10 astronomical unit. The specific exchange data may vary in different nations, but most of the values fall in the range.
 
 
-**Carrying Spacecrafts:** Much smaller spacecrafts including reconnaissance planes, patrol ships, bombers, or fighters that stay in hangars in large warships in space, assisting combat.
-
-
 **Low-intensity Occupation:** A theory that proposes larger civilizations to contact indigenous people against the global government in a civilization, or another known planetary, to attack the current government, establishing indirect rules for the larget civilizations without using massive fleets to conduct forcible occupation. However, major expanding nations in the Galaxy chose to occupy by force.
 
 
-**Consolidated Pneumonia:** A disease that is still causing great damage to civilizations in the Orion Arm and nearby Galactic regions after humans were involved in an interstellar war. Its symptons include some of those of normal lung diseases, but the most lethal one is that pathogenic virus condense into blocks of lesions that can spread to other organs like cancer. An effective vaccine hadn't been invented until several years after the end of the war.
+**Consolidated Pneumonia:** A disease that is still causing great damage to civilizations in the Orion Arm and nearby Galactic regions after humans were involved in an interstellar war. Its symptons include some of those of normal lung diseases, and the most lethal characteristic is that pathogenic virus condense into blocks of lesions that can spread to other organs like cancer without stop, even during the process of chemotherapy, killing infected people in a slow but painful manner.
