@@ -49,3 +49,4 @@
 - [Chapter 2 Throwing Away the Strawman](./Chapter_2_Throwing_Away_the_Strawman.md)
 - [C3-7](./C3-7.md)
 - [C3-8](./C3-8.md)
+- [C3-9](./C3-9.md)
