@@ -33,7 +33,7 @@
 - [C2-8](./C2-8.md)
 - [C2-9](./C2-9.md)
 - [C2-10](./C2-10.md)
-- [Chapter 3 Silent Roar of Main Batteries](./Chapter_3_Silent_Roar_of_Main_Batteries.md)
+- [Chapter 3 Silent Roar of Main Batteries.md](./Chapter_3_Silent_Roar_of_Main_Batteries.md)
 - [C2-11](./C2-11.md)
 - [C2-12](./C2-12.md)
 - [C2-13](./C2-13.md)
