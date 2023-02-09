@@ -51,6 +51,7 @@
 - [C3-8](./C3-8.md)
 - [C3-9](./C3-9.md)
 - [C3-10](./C3-10.md)
+- [Chapter 3 Behind The Scene](./Chapter_3_Behind_The_Scene.md)
 - [C3-11](./C3-11.md)
 - [C3-12](./C3-12.md)
 - [C3-13](./C3-13.md)
