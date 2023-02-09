@@ -10,7 +10,7 @@ The Galaxy we stay, like a pandemonium not yet open that some millions of people
 
 Once, when the already unstable order from the Post-cold war era had ceased to exist, spills of blood and pain of death spread across the globe. Only after a true bloodshed that irrevocably changed the past made people unite. It was only not distant when people abandoned to build their national space arsenal and fighting against each other, and turned to build international space stations, developing what we now call "prototype space force".
 
-Although seeing from now, using such a small force to defend other much larger enemies was like a full-armored knight charging to a machine gun position, it was what we once had. Within the large United Nations, some wanted to defend within the atmosphere, some wanted to contact those aliens, while others just wanted to dig into Mars and hide forever.
+Although seeing from now, using such a small force to defend other much larger enemies was like a full-armored knight charging to a mounted machine gun position, it was what we once had. Within the large United Nations, some wanted to defend within the atmosphere, some wanted to contact those aliens, while others just wanted to dig into Mars and hide forever.
 
 Already dominating nations in the Galaxy were easy to put down battling civilizations, but not very easy to do so by bloodshed, if they wanted to exploit them more completely. Any unknown civilization, just by using locals to take down locals, was a small and easy task. Taking over a small stellar system could hardly fill their jaws. Therefore, they turned to target some new nations in the Galaxy, assimilating them by force, triggering massive resistance under their conquest, under their formidable fleets.
 
@@ -20,9 +20,9 @@ The same demand to drive those ferocious enemies outside the homeland led to a u
 
 "We stood up at a wrong place and a wrong time, but we fought an absolutely right war against a right enemy."
 
-Chen Dayou, District Commissioner
+Chen Dayou, District Commissioner of Yavin
 
-Aug 24, 2250
+Aug 24, 2150
 
 From an interview with him
 
