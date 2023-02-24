@@ -1,0 +1,15 @@
+# Period 3
+
+**Preface**
+
+*Chain Reaction*
+
+"The only remaining battleship battle groups are defending their nation with barely available sparing power. On the other side, lines of battleships are releasing infinite fighters and bombers. We are doing everything we can in every stellar systems. Enemy bombers and fighters are flying above planets, scavenging any sort of flame that can scorch their path of advance. They are tearing down a high wall that they haven been eager to walk past for years, never realizing that any brick falling down from it can hurt them."
+
+Storms are going to emerge and ravage. Fear of another storm above the Solar system is emerging, as people do not wish to getting into another one due to their trauma. Outside the Solar system, a nation is also defending against a severe storm that will plunder every planet, every continent, every city, and every house. People there were trying to send out a message by their blood and bravery. Time is scarce, though; it is always impossible to stop a storm but possible to relieve its damage--as the storm is about to approach, they have no choice but to open the radar and send out the message to other intact regions. At the same moment--the same storm that the nation was experiencing--was also present in other places--in the Galaxy.
+
+Generals and officers were trying to locate the stellar system they barely maintained contact with; the Security Council was making plans and tactics for their newly forged sword and future of their people; an Empire stretching its talons was approaching--all sounded recent and ancient. People, both humans living on Earth and Hapsahan peoples living in their planet had decided to go to space despite traumatic impression on aliens. They were moving on the path their ancestors had failed persisting for less than two decades. They were finding clues for any possible alien civilizations. The clues for their existence, the clues for their internal framework, the clues for their residence and biological form...or those that humans or Hapsahan people could not decipher and understand.
+
+The first clue waiting for revelation, was from a group of people living in Hapsaha. Some information they inherently brought could bring the Security Council some clues. If some cells from them would be managed to be cultured, maybe they would reveal something--difference in cellular structure, organelles, and genetic materials. Although there was no official recognition of marriage between humans and Hapsahan people due to possible speciation, moments of encounter would signal future changes in biological form. After the first time an alien "species", or population had been discovered, it was determined that there would be way more yet to be discovered. However, to reveal the clue to the public, just like revealing cause of air crashes, was never an easy job.
+
+It was always recognized, though, a detonated bomb could set off a chain of explosion, if properly arranged. Everyone, in the Security Council, in the Republic, behind the frontlines, behind the whole scene, was waiting for it to be designed, be planted, and be detonated.
