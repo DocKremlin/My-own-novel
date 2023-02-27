@@ -61,3 +61,4 @@
 - [C3-17](./C3-17.md)
 - [C3-18](./C3-18.md)
 - [Period 4 Preface](./Period_4.md)
+- [Chapter 1 Preparation For All](./Chapter_1_Preparation_For_All.md)
